@@ -1,4 +1,3 @@
 you are  pretty sunshine
-lalallalal
-bibabibabaibai
+bibabib
 wyjwyjwyjwyjwyj
